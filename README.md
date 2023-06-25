@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **jrk2001.mymail@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1YG7xKvIQbHHC5je46g_JXGwzbpSXSqfj/view?usp=sharing](https://drive.google.com/file/d/1YG7xKvIQbHHC5je46g_JXGwzbpSXSqfj/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1YG7xKvIQbHHC5je46g_JXGwzbpSXSqfj/view?usp=drivesdk](https://drive.google.com/file/d/1YG7xKvIQbHHC5je46g_JXGwzbpSXSqfj/view?usp=drivesdk)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
